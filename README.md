@@ -17,3 +17,5 @@ email: catwhoswim@gmail.com
 [vk](https://vk.com/catwhoswim)
 
 [steam](https://steamcommunity.com/id/catwhoswim/)
+
+[discord](https://discordapp.com/users/166559721220734978)
